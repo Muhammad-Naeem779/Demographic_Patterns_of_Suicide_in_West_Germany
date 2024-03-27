@@ -1,0 +1,1 @@
+A detailed analysis of West Germany's suicide rates from 1979 gives insight into the state of the country's mental health.
